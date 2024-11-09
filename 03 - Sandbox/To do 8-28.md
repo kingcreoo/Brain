@@ -1,0 +1,7 @@
+- Laundry
+- Gym
+- Facebook marketplace
+- Order things
+	- Motorcycle chain maintenance
+	- Subaru repairs
+	- PC Parts
